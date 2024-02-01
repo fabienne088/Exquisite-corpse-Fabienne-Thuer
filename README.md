@@ -1,1 +1,1 @@
-# Exquisite-corpse-Fabienne-Th-er
+# Exquisite-corpse-Fabienne-Thuer
